@@ -30,7 +30,7 @@ Website-kan waxaa lagu dejin karaa:
 3. Vercel (bilaash)
 
 ## 📞 Xidhiidhka
-- 📧 Email: info@jipomedia.com
+- 📧 Email: info@Jipo2410@gmail.com
 - 📞 Taleefoon: +252 63 8888441 
 - 📍 Goobta: Hargeisa somaliland
 
